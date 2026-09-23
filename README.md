@@ -1,0 +1,1 @@
+# Onlayn-do-kon-katalogi-interfeys-va-type-alias
